@@ -1,0 +1,1 @@
+# ayt-geometri-planli-ders-foyu-32
